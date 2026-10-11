@@ -1,4 +1,4 @@
-Hi there 👋Hi there, I'm Deepshika! 👋
+Hi there , I'm Deepshika! 👋
 
 🎓 EEE Student at St. Joseph's College of Engineering
 
